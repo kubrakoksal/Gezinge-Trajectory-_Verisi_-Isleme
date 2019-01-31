@@ -1,0 +1,1 @@
+# Gezinge-Trajectory-_Verisi_-sleme
